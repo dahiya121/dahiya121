@@ -5,9 +5,8 @@ Email Me 👉 ✉️ **dhaiyapraveen4@gmail.com** For Collaboration/Project or A
 
 - 🔭 **I’m currently working on:** Delvering insights from Data
 - 🌱 **I’m currently learning:**AI/ ML
-- 👯 **I’m looking to collaborate on:** Data analyst project
+- 👯 **I’m looking to collaborate on:** Data analyst 
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 😄 **Pronouns:** Dahiya ji
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
